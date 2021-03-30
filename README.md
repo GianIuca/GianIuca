@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Gianluca
-- 👀 I’m interested in Soccer, Anime, Gaming
+- 👀 I’m interested in Soccer, Gaming, Anime
 - 🌱 I’m currently learning application developer
 - 🐕 I have two Dogs
 
